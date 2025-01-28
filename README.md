@@ -1,2 +1,5 @@
-# high-seas-hero-codes-unlimited-money-hacks
-High Seas Hero Cheats unlock everything, unlimited money HACks wth code
+# High Seas Hero Cheats unlock everything, unlimited money HACks wth code
+
+High Seas Hero Cheats unlock everything, unlimited money HACks - If you drive a heavy tank like the Pershing, this is particularly useful because compared to tanks like the Chaffee that waste money on rapid fire, you can carry your giant gun with minimal effort and without the need for brainpower, without becoming vulnerable due to slower loading speeds. In addition, the heavy armor of thicker tanks can make mistakes, such as allowing the enemy to fire before throwing smoke, which can be more forgiving. Of course, the final step is to load your basic HE ammunition and blast your target into hell! When smoke blinds enemy tanks, use close range shooting to strike the enemy to ensure minimal waste of ammunition. If you can maintain the habit of shooting smoke directly at enemy tanks instead of aiming at the ground between you and them to maintain your accuracy. High Seas Hero code - NAK812OAOO
+
+[see now](https://highseashero.quora.com/about)
